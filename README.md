@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Pakorn Sudjit
-- 👀 I’m interested in technology in future
+- 👀 I’m interested in future technology
 - 🌱 I’m currently learning everything and everyday
 - 💞️ I’m looking to collaborate on ...FIND friend or company...
 - 📫 How to reach me email : pakornsudjit@gmail.com
